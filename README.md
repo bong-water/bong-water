@@ -1,2 +1,2 @@
 lets bring back public shaming
-![](https://i.postimg.cc/3Rbm2BFy/image.png)
+![](https://i.postimg.cc/4NpBVYmJ/image.png)
